@@ -1,0 +1,4 @@
+Phone-Number-Verification-from-B2B-Data-Partners
+================================================
+
+B2Bdatapartners works with the objective of providing accurate and dependable data for big corporations and small businesses. Our phone number verification service is the most popular with our clients. Apart from phone number verification service, we also provide data consultancy and data management services to our clients. Our top-line phone number verification service is done through automatic matching service and reduces the time required to complete any project. Through our faster turnaround time and quality work, our clients are able to increase the ROI from telemarketing and also reach more customers faster.  http://www.b2bdatapartners.com/tele-verification.asp
